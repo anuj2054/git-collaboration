@@ -12,7 +12,7 @@ Nepal's diverse linguistic heritage stems from three major language groups: Indo
 
 
 ## interesting trivia
-There's a location in Nepal that is said bo be the birthplace of Buddha
+There's a location in Nepal called Lumbini that is said to be the birthplace of Buddha and has a UNESCO verified pillar erected 1000 years ago that mentions the birth of Buddha.
 The Nepali word for "Everest" is "Sagarmatha", which means Sky
 50% of Nepalies survives with only 1 Dollar at day
 
